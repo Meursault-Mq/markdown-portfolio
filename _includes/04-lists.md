@@ -1,3 +1,3 @@
--Voile
--soleil
--eau de coco 🌴
+- Voile
+- soleil
+- eau de coco 🌴
