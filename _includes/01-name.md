@@ -1,1 +1,1 @@
-# Antoine <GUY>
+# Antoine GUY
